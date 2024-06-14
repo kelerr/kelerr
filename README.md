@@ -8,4 +8,8 @@ Meu nome é Guilherme Keler
 -Utilizo esse espaço para minha organização e compartilhamento de meus projetos desenovlvidos 
   
 
-## Você pode entrar em contato comigo 
+## Você pode entrar em contato comigo 📫
+
+guilhermekelerbispo@gmail.com
+
+00001084044833sp@al.educacao.sp.gov.br
